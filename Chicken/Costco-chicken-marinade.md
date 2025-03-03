@@ -9,7 +9,7 @@
 	1 tsp salt
 	1/2 tsp oregano
 	1/4 tsp black pepper
-	1 tsp corn starch , optional
+	1 tsp corn starch, optional 
 
 # Instructions
 	Add the chicken, garlic, olive oil, lime, spices, and cornstarch to a large bowl or ziplock bag
